@@ -1,0 +1,1 @@
+# Generative-logo-diamond-theory
